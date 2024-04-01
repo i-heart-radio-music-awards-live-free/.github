@@ -1,4 +1,4 @@
-# <h1>[WATCH@LIVE]!* 2024 [LIVEFREE] iHeartRadio Music Awards Live Free Broadcast on TV 1st April 2024</h1>
+# <h1>[IVEFREE]!* 2024 [LIVEFREE] iHeartRadio Music Awards Live Free Broadcast on TV 1st April 2024</h1>
 
 How to watch the 2024 iHeartRadio Music Awards
 The 2024 iHeartRadio Music Awards, which will feature performances and appearances from some of the biggest artists in the world, are almost here.
